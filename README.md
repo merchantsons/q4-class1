@@ -1,8 +1,5 @@
 # 1st ASSIGNMENTS - FOR CLASS-1<br>
 
-Live App On Vercel <br>
-# <br>
-
 ꧁༺ 26/05/2025 ༻꧂ 
 
 # 🅀🅄🄰🅃🄴🅁 4 <br>
